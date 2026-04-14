@@ -49,4 +49,4 @@ Se você também trabalha com tecnologia e deseja trocar ideias sobre como aplic
 > "Servi uns aos outros, cada um conforme o dom que recebeu, como bons despenseiros da multiforme graça de Deus." — **1 Pedro 4:10**
 
 ---
-**Desenvolvido por [Seu Nome / Italo Ismailey]** 📍 Palmas, TO
+**Desenvolvido por ItaloIsmailey 📍 Palmas, TO
